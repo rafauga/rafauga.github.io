@@ -1,6 +1,6 @@
 ---
 layout: post
-title: You're up and running!
+title: Variation theory and dialogism are compatible
 ---
 
 # Variation theory and dialogism are compatible
