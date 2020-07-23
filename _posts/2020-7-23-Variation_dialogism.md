@@ -3,8 +3,6 @@ layout: post
 title: Variation theory and dialogism are compatible
 ---
 
-# Variation theory and dialogism are compatible
-
 Variation theory says that learning consists in coming to discern differences in an object of learning that were previously unnoticed. We are thus learning to see an object in new ways. We can never see a thing simply as what it is - we always see some aspect of it, against a background and as compared with other things. 
 
 > learning to see something in a certain way amounts to discerning certain critical features of that phenomenon and focusing on them simultaneously. [Marton and Trigwell, Variatio est mater studiorum, p. 393]
