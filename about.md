@@ -1,9 +1,9 @@
 
-My name is Ingólfur Gíslason
+Ég heiti Ingólfur Gíslason / My name is Ingólfur Gíslason
 
 ### More Information
 
-I write notes on mathematics teaching and learning.
+Ég skrifa um menntun, ljóð og fleira / I write notes on education, poetry and more
 
 ### Contact me
 
