@@ -17,7 +17,7 @@ En ég var ekki einn, og það vantar í sjálfu sér ekkert upp á að efni haf
 
 Refaat Alareer, prófessor í enskum bókmenntum við Íslamska háskólann á Gaza, kom fram í fjöldamörgum þáttum í ýmsum miðlum (þó ekki á meginstraumnum) upp úr 7. október. Ísrael myrti hann svo í desember 2023. Hann var drepinn af yfirlögðu ráði og honum hafði verið tilkynnt það fyrir fram af ísraelska hernum. Hér er tvít hans frá 9. október: 
 
-<img src="/images/refaat_tweet.jpg" alt="Refaat" width="300">
+<img src="/images/refaat_tweet.jpg" alt="Refaat" width="400">
 
 Hann var svo til viðtals 10. október á Democracy Now! og sagði:
 
