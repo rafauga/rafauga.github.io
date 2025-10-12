@@ -5,7 +5,7 @@ title: Gat engan órað fyrir þjóðarmorði?
 
 Palestínufólk og palestínskt fræðafólk og álitsgjafar hefur alltaf verið **sniðgengið** af vestrænum meginstraumsmiðlum. Þar ríkja raddir vestrænna og ísraelskra stofnanna. Í þessum miðlum, eins og ríkismiðlum evrópuríkja á borð við RÚV og BBC, og bandaríska miðla eins og CNN og New York Times, svo ekki sé talað um aðra bandaríska öfga hægrimiðla, er nánast aldrei talað við palestínskt fræðafólk né heldur við sérfræðinga um Palestínu annars staðar að. Þannig er aldrei talað við ísraelsku Gyðingana Ilan Pappé eða Avi Shlaim í Bretlandi þó að þeir búi þar og séu háskólaprófessorar þar, sérfræðingar í landráni Ísraels í Palestínu, með langan lista af bókum, vísindagreinum og verðlaunum í sínu farteski. 
 
-[Ekki er talað við þessa menn í meginstraumsmiðlum.](/pappe_shlaim_shaw.jpg)
+![Pappe_Shlaim](/images/pappe_shlaim_shaw.jpg "Ekki er talað við þessa menn í meginstraumsmiðlum.")
 
 Þess vegna getur vel skapast sú tilfinning að engan hafi getað órað fyrir um viðbrögð Ísraels við útbrotstilraun Hamas og annarra andspyrnuhreyfinga í október 2023. Að sjálfsögðu sá enginn fyrir alla atburði tvö ár fram í tímann. Ekki frekar en hægt var að sjá fyrir í október 2023 að Víkingur yrði Íslandsmeistari í fótbolta 2025. En allir sem vita eitthvað, vissu þá þegar að yfirgnæfandi líkur væru til þess að Ísrael myndi nýta þennan atburð til að vinna Palestínufólki eins mikið tjón og þeir mögulega gætu, helst að hreinsa Gazasvæðið algerlega með því að drepa sem flesta, eyðileggja allar lífsbjargir og hrekja þannig alla sem eftir lifa á brott. Við vissum þetta mörg þó að við hefðum ekki fyrirfram vitneskju um það hvernig Joe Biden vann í einu og öllu að þessu markmiði með Ísrael. Við héldum örugglega einhver að á einhverjum punkti myndu Bandaríkin fá nóg. Ekki vegna samvisku eða gilda heldur vegna ímyndar og áhrifa á „mjúka valdið“ sem þeir hafa í krafti þeirrar ímyndar. 
 
@@ -21,7 +21,7 @@ Refaat Alareer prófessor í enskum bókmenntum við Íslamska háskólann á Ga
 
 > Some are calling for striking Gaza with a nuclear bomb. Can you imagine that? And many other Israeli officials are using Nazi discourse and Nazi language, talking about Palestinians as savages and animals that need to be exterminated and that Gaza needs to be turned into a parking lot. This is what we are dealing with. We are dealing with a systematic, structural, colonial attempt to annihilate and exterminate the Palestinians, with the aid and support of the West and American tax money.
 
-Hann lýsir þessu af þekkingu, en það er hefð fyrir því í okkar vestræna menntaheimi að taka ekki mark á Palestínumönnum, sem eru þeir sem hafa mestu þekkinguna á síonisma. Meira má lesa hér af viðtalinu sem var tekið 10. október: https://www.democracynow.org/2023/10/10/refaat_alareer_gaza_israel_bombing
+Hann lýsir þessu af þekkingu, en það er hefð fyrir því í okkar vestræna menntaheimi að taka ekki mark á Palestínumönnum, sem eru þeir sem hafa mestu þekkinguna á síonisma. Meira má lesa hér af viðtalinu sem var tekið 10. október, [Refaat Alareer in Gaza: Israel’s “Barbaric” Bombardment Is Part of Ethnic Cleansing Campaign](https://www.democracynow.org/2023/10/10/refaat_alareer_gaza_israel_bombing)
 
 Fleiri palestínskir fræðimenn vöruðu við því sem kom á Al-Jazeera. Við vitum jú að málfrelsi gengur út á að vestrænt fólk innan hæfilega viðtekins ramma skoðanna fær að tjá sig í okkar miðlum. Þess vegna komu þessar raddir ekki fram nema á Al-Jazeera eða „óhefðbundnum miðlum“ (t.d. Democracy Now). Hér eru nokkrar viðvaranir: 
 
@@ -29,7 +29,7 @@ Tareq S. Hajjaj skrifar 12. október 2023 grein á Mondoweiss um ótta við þj�
 
 Yumna Patel skrifar á Mondoweiss 13. október 2023, [Israel is preparing to commit genocide](https://mondoweiss.net/2023/10/israel-is-preparing-to-commit-genocide/)
 
-Og Muhannad Ayyash á Al-Jazeera, skrifar grein 2. nóvember 2023, [A genocide is under way in Palestine](https://www.aljazeera.com/opinions/2023/11/2/a-genocide-is-under-way-in-palestine
+Og Muhannad Ayyash á Al-Jazeera, skrifar grein 2. nóvember 2023, [A genocide is under way in Palestine](https://www.aljazeera.com/opinions/2023/11/2/a-genocide-is-under-way-in-palestine)
 
 Hópur sérfræðinga um þjóðarmorð ásamt meira en hundrað samtökum skoruðu einnig á Alþjóða sakamáladómstólinn að gefa út handtökuskipanir gegn foringjum Ísraels 19. október 2023: [Genocide Scholars and 100 Palestinian and International Civil Society Organisations Call on Prosecutor Khan to Issue Arrest Warrants, Investigate Israeli Crimes and Intervene to Deter Incitement to Commit Genocide in Gaza](https://mezan.org/en/post/46295/Genocide-Scholars-and-100-Palestinian-and-International-Civil-Society-Organisations-Call-on-Prosecutor-Khan-to-Issue-Arrest-Warrants,-Investigate-Israeli-Crimes-and-Intervene-to-Deter-Incitement-to-Commit-Genocide-in-Gaza)
 
