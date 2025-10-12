@@ -15,7 +15,11 @@ En ég var ekki einn, og það vantar í sjálfu sér ekkert upp á að efni haf
 
 Ég fór og leitaði að fleiri heimildum sem hafa fallið í gleymskunnar dá, til að athuga hvort einhvern hefði órað fyrir um meginatriðið: þjóðarmorðið. 
 
-Refaat Alareer, prófessor í enskum bókmenntum við Íslamska háskólann á Gaza, kom fram í fjöldamörgum þáttum í ýmsum miðlum (þó ekki á meginstraumnum) upp úr 7. október. Ísrael myrti hann svo í desember 2023. Hann var drepinn af yfirlögðu ráði og honum hafði verið tilkynnt það fyrir fram af ísraelska hernum. Hann sagði til dæmis 10. október á Democracy Now!
+Refaat Alareer, prófessor í enskum bókmenntum við Íslamska háskólann á Gaza, kom fram í fjöldamörgum þáttum í ýmsum miðlum (þó ekki á meginstraumnum) upp úr 7. október. Ísrael myrti hann svo í desember 2023. Hann var drepinn af yfirlögðu ráði og honum hafði verið tilkynnt það fyrir fram af ísraelska hernum. Hér er tvít hans frá 9. október: 
+
+![Refaat_tweet](/images/refaat_tweet.jpg)
+
+Hann var svo til viðtals 10. október á Democracy Now! og sagði:
 
 > What is happening in Gaza is complete and utter extermination of the non-Jewish population in occupied Palestine. As you mentioned, Israel ordered a medieval hermetic siege from air and sea. Israel has also just bombed the only way out through Egypt, the Rafah crossing. The only way out is for — what’s happening, what we are foreseeing is slow starvation, slow genocide. Maybe Israel is going to push us all into the sea.
 
@@ -41,7 +45,7 @@ Að lokum nefni ég samtök lögfræðinga fyrir Palestínu sem héldu netfund 1
 
 > Over the last few days, we have witnessed Israel undertaking the crime of genocide against the Palestinian people in the besieged Gaza strip. Senior Israeli officials have made statements with genocidal intent and followed them up with actions that deliberately inflict on the Palestinian people conditions of life calculated to bring about their physical destruction, amounting to the crime of genocide as defined in international law. This is not an isolated situation but is an extension of systematic grave injustices the Palestinian people have been subjected to for over a century.
 
-Svo að það má segja að það sé hæpið að „engan hafi getað órað fyrir“ um framhaldið þó að enginn hafi séð það nákvæmlega fyrir sér í smáatriðum, ekki frekar en nokkur sjái nokkurn tíma nokkuð fyrir í smáatriðum. 
+Svo að það má segja að það sé hæpið að „engan hafi getað órað fyrir“ um framhaldið þó að enginn hafi séð það nákvæmlega fyrir sér í smáatriðum, ekki frekar en nokkur sjái nokkurn tíma nokkuð fyrir í smáatriðum. Höfðu Palestínumenn kannski of rétt fyrir sér of snemma? Ef ramminn þinn er mótaður af vestrænni yfirburðarhyggju og þekkingarleysi á síonisma þá bara trúir þú ekki raunveruleikanum. Ef þú gerir þér ekki fulla grein fyrir landránsnýlendueðli Ísraels og „útrýmingartilhneigingu“ landránsnýlenda almennt (sjá til dæmis [Wolfe, P. (2006). Settler colonialism and the elimination of the native. Journal of Genocide Research, 8(4), 387–409. https://doi.org/10.1080/14623520601056240](https://doi.org/10.1080/14623520601056240)) þá áttu erfitt með að trúa því sem er/var að gerast og hefur í raun verið í gangi á mismunanda hraða og með mismunandi ákafa í um það bil öld. 
 
 Því miður segir þekkingin okkar einnig að Ísrael muni ekki gefa neitt eftir eftir hina nýju samninga – þeir hafa ekki skyndilega skipt um skoðun. Þeir vilja enn þá alla Palestínu og meira til, þeir vilja hreinsa Palestínu af aröbum og þeir nýta hvert tækifæri til að vinna málstað Palestínu eins mikið tjón og mögulegt er. Til þess beita þeir öllum brögðum: lygaáróðri, samningssvikum, aftökum, fjöldamorðum, eyðileggingu ræktarlands, húsnæðis og svelti, svo örfá dæmi séu tekin. Mig órar hér með fyrir því að stundarfriðurinn sé mestan part brella og blekking. Morðin munu halda áfram, ef til vill aftur af fullum þunga þegar stríðsföngum hefur verið skilað til Ísraels. 
 
